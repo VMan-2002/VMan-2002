@@ -4,6 +4,8 @@
 i've worked on<br>
 [The Mega Mogus](https://gamebanana.com/mods/342664)<br>
 [Cornflower Week](https://gamebanana.com/mods/352865)<br>
+[Vs Tabi Ex Boyfriend](https://gamebanana.com/mods/286388)<br>
+[Friday Night Funkbox + VMan Engine](https://gamebanana.com/mods/428567)<br>
 probably a few more idk
 
 ### other things
